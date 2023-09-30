@@ -1,4 +1,4 @@
-👋 Hi, I’m @LumiAiven and I work as TA Partner we are growing OSPO office!!! (helping with recruitment with Tech, Product Design and much more)
+👋 Hi, I’m @LumiAiven and I work as Senior TA Partner we are growing OSPO office!!! (helping with recruitment with Tech, Product Design and much more)
 
 👀 I’m interested in OpenSource, communities, growing, Hiring and Finding people
 
